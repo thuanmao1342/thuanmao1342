@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @thuanmao1342
+- 👀 I’m interested in Bac Giang
+- 🌱 I’m currently learning FPT polytecnich
+- 📫 How to reach me thuanmao1342@gmail.com
